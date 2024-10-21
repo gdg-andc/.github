@@ -1,4 +1,4 @@
-# 🌟 GDG on Campus, Acharya Narendra Dev College, Delhi University 🌟
+# 🌟 GDG on Campus, Acharya Narendra Dev College 🌟
 ![1729428666237](https://github.com/user-attachments/assets/a0810e43-090f-465d-a59b-6717424526e8)
 
 
